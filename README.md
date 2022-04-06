@@ -1,4 +1,4 @@
-# Gabriela Livro de receitas fáceis e práticas
+# Gabriela Livro de receitas simples
 Desafio Projeto Git/Github
 
 ## Receita de bombom de uva
