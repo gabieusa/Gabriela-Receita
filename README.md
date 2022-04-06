@@ -31,9 +31,9 @@ Como Fazer:
 
 8. Passe os brigadeiros recheados para a forma de bombom e depois leve ao freezer até que endureça.
 
-9. Enquanto isso, derreta o chcolate.
+9. Enquanto isso, derreta o chocolate.
 
-10. Banhe o bigadeiro no chcolate e coloque no papel manteiga para não grudar.
+10. Banhe o bigadeiro no chocolate e coloque no papel manteiga para não grudar.
 
 11. Leve ao freezer por cerca de 30 minutos.
 
